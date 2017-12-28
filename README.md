@@ -11,5 +11,3 @@ Aristotle lived from 384-322. As epitomized in Raphael's painting, if Plato is l
 
 
 
-
-
